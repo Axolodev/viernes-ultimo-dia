@@ -1,1 +1,0 @@
-# viernes-ultimo-dia
